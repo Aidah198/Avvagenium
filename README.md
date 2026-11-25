@@ -1,0 +1,2 @@
+# Avvagenium
+An evolving student whose identity is built on curiosity, versatility and willingness to grow, learn, explore greatness found in mechatronics. I continuously seek to understand and apply concepts across different engineering disciplines. I'm not confined to what I already know, but motivated by what I am yet to discover and create.   
